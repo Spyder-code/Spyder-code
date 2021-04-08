@@ -1,3 +1,5 @@
+![header]https://github.com/Spyder-code/Spyder-code/blob/main/new-logo-bg.jpg)
+
 # *Do some good things :handshake:*!
 
 ---
